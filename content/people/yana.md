@@ -29,4 +29,4 @@ This led me to my current research interests. I am working with Dr.Schwartz, Evo
 
 who are both my PhD co-advisors and mentors.
 
-In addition to programming, my interests include traveling, Pilates, watching NASCAR and Formula 1 racing events,"Girl with a Dragon Tattoo", and Lana Del Rey.
+In addition to programming, my interests include traveling, Pilates, watching NASCAR and Formula 1 racing events, "Girl with a Dragon Tattoo", listening to Lana Del Rey.
